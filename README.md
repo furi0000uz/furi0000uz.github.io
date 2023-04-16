@@ -1,0 +1,1 @@
+# furi0000uz.github.io
